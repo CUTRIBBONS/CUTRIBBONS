@@ -1,1 +1,2 @@
-<img src="https://media.tenor.com/ydHqQgp3OAcAAAAi/aesthetic-cute.gif" alt="a pink and white striped border with a pattern of hearts"/><img width="498" height="50" alt="image" src="https://github.com/user-attachments/assets/2e3f3048-bce8-4fc2-830b-a8adf45774c5" />
+<img src="https://media1.tenor.com/m/W_c9rq2uVKoAAAAC/sugar-bunnies-kawaii.gif" alt="a pink background with two sugarbunnies rabbits and a cake"/><img width="498" height="281" alt="image" src="https://github.com/user-attachments/assets/164973dd-b847-44c8-a7bf-cfb2b1650591" />
+
