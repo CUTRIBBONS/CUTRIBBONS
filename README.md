@@ -1,16 +1,22 @@
-<img width="590" height="42" alt="image" src="https://github.com/user-attachments/assets/04d6ea8e-54b3-41fa-abcf-cf5090cc9006" />
+<img src="https://media.tenor.com/cWnRZjezz5kAAAAj/divider-red.gif" alt="a row of red flowers along a white background"/><img width="300" height="38" alt="image" src="https://github.com/user-attachments/assets/70dceeb8-592d-4ada-a2af-4c57d6fc49a2" />
 
-
-⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
-
-![Untitled2190_20251205205845](https://github.com/user-attachments/assets/33cc3ff3-3a11-462e-9447-4a7132ee1fa5)
+︶꒷꒦︶ ๋࣭ " 𝖜𝖔𝖚𝖑𝖉 𝖞𝖔𝖚 𝖉𝖎𝖊 𝖙𝖔𝖓𝖎𝖌𝖍𝖙 𝖋𝖔𝖗 𝖑𝖔𝖛𝖊 ? 𝖇𝖆𝖇𝖞 𝖏𝖔𝖎𝖓 𝖒𝖊 𝖎𝖓 𝖉𝖊𝖆𝖙𝖍. " ︶꒷꒦︶ ๋࣭ 
 
 
 
 
 
-⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
-<img width="590" height="42" alt="image" src="https://github.com/user-attachments/assets/dd4e6d63-32f5-4544-ac0f-06c14a9253ba" />
 
-𝐚𝐫𝐭 𝐛𝐲 𝐦𝐞 ! :𝟑 . 𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐥𝐢𝐤𝐞 𝐨𝐛𝐬𝐜𝐮𝐫𝐞 𝐚𝐧𝐝 𝐛𝐚𝐦𝐛𝐨𝐨...𝐀𝐍𝐘𝐖𝐀𝐘𝐒 𝐂𝐎𝐓𝐘 𝟐𝟓 𝐔𝐌𝐁𝐑𝐀 𝐖𝐎𝐍 𝐘𝐀𝐘
+![20260118212114](https://github.com/user-attachments/assets/83c8aabe-f2ff-4e43-954c-3374211daba0)
+
+
+
+
+
+
+
+
+<img src="https://media.tenor.com/cWnRZjezz5kAAAAj/divider-red.gif" alt="a row of red flowers along a white background"/><img width="300" height="38" alt="image" src="https://github.com/user-attachments/assets/70dceeb8-592d-4ada-a2af-4c57d6fc49a2" />
+
+︶꒷꒦︶ ๋࣭ ⭑ 𝖆𝖗𝖙 𝖇𝖞 𝖒𝖊 ! 𝕴 𝖑𝖆𝖛 𝖚𝖒𝖇𝖗𝖆 𝖆𝖓𝖉 𝖇𝖆𝖒𝖇𝖔𝖔...𝖘𝖎𝖌𝖓 𝖆𝖙𝖆 𝖆𝖓𝖉 𝖘𝖙𝖗𝖆𝖜 𝖍𝖊𝖍𝖊 ! ! ︶꒷꒦︶ ๋࣭ 
