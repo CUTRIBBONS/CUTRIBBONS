@@ -1,11 +1,10 @@
 <div align=center>
-<img width="650" alt="image" src="https://github.com/user-attachments/assets/77b67e23-96f4-457f-aae8-deec9fe0c2b9" />
-<br/> <img width="650" alt="image" src="https://github.com/user-attachments/assets/e0b01aa0-a6ba-4b47-8348-fddd6290c64e" />
+<br/> <img width="650" alt="image" src="https://files.catbox.moe/7hgh2s.webp" />
 <br/>
-<br/> ꒰ঌ "𝐓𝐨 𝐛𝐞𝐥𝐢𝐞𝐯𝐞 𝐲𝐨𝐮 𝐰𝐚𝐧𝐝𝐞𝐫𝐞𝐝 𝐢𝐧𝐭𝐨 𝐦𝐲 𝐠𝐫𝐨𝐯𝐞 𝐰𝐢𝐭𝐡𝐨𝐮𝐭 𝐚𝐧 𝐢𝐧𝐯𝐢𝐭𝐚𝐭𝐢𝐨𝐧...𝐈𝐬 𝐭𝐡𝐢𝐬 𝐟𝐚𝐭𝐞, 𝐨𝐫...?! ໒꒱
+<br/> ꒰ঌ 𝐡𝐢 𝐠𝐮𝐲𝐬 𝐢𝐭𝐬 𝐦𝐞 𝐫𝐢𝐛𝐛𝐨𝐧𝐬 𝐚𝐧𝐝 𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐥𝐢𝐤𝐞...𝐎𝐛𝐬𝐜𝐮𝐫𝐞𝐛𝐥𝐚𝐝𝐞... ໒꒱
 <br/>
-<br/> <img width="650" alt="image" src="https://github.com/user-attachments/assets/e13e91f2-1304-485e-b228-58f2513be155" />
-<br/>꒰ 𝐀𝐫𝐭 𝐛𝐲 𝐦𝐞 𝐡𝐞𝐡𝐞 ! 𝐒𝐢𝐠𝐧 𝐚𝐭𝐚 𝐚𝐧𝐝 𝐬𝐭𝐫𝐚𝐰 𝐟𝐨𝐫 𝐚 𝐜𝐮𝐭𝐞 𝐛𝐨𝐰 𝐨𝐧 𝐲𝐨𝐮𝐫 𝐡𝐞𝐚𝐝 𝐚𝐧𝐝 𝐬𝐨𝐦𝐞 𝐩𝐚𝐬𝐭𝐫𝐢𝐞𝐬 𝐬𝐢𝐥𝐥𝐲 ! <𝟑 ꒱
+<br/> <img width="650" alt="image" src="https://files.catbox.moe/xt6js2.webp" />
+<br/>꒰ 𝐈'𝐥𝐥 𝐡𝐚𝐯𝐞 𝐧𝐞𝐰 𝐝𝐫𝐚𝐰𝐢𝐧𝐠 𝐡𝐞𝐫𝐞 𝐬𝐨𝐨𝐧 𝐭𝐫𝐮𝐬𝐭...! 𝐒𝐢𝐠𝐧 𝐚𝐭𝐚 𝐚𝐧𝐝 𝐬𝐭𝐫𝐚𝐰 𝐟𝐨𝐫 𝐚 𝐜𝐮𝐭𝐞 𝐛𝐨𝐰 𝐨𝐧 𝐲𝐨𝐮𝐫 𝐡𝐞𝐚𝐝 𝐚𝐧𝐝 𝐬𝐨𝐦𝐞 𝐩𝐚𝐬𝐭𝐫𝐢𝐞𝐬 𝐬𝐢𝐥𝐥𝐲 ! <𝟑 ꒱
 <br/> <details>
   <summary> <sup><sub>💌</sub></sup> </summary>
  <div align="center">
@@ -14,7 +13,6 @@
 <br/> 𝐦𝐢𝐧𝐭𝐳, 𝐢𝐯𝐨𝐫𝐲, 𝐰𝐨𝐨𝐟𝐞𝐫𝐳, 𝐜𝐡𝐨𝐤𝐨, 𝐯𝐞𝐞, 𝐈𝐯𝐚𝐧, 𝐍𝐚𝐭𝐡𝐚𝐧, 𝐒𝐩𝐢𝐜𝐞, 𝐟𝐨𝐥𝐥𝐨𝐰𝐢𝐧𝐠, 𝐞𝐭𝐜.
 <br/> 𝐢𝐥𝐲 𝐠𝐮𝐲𝐬 𝐬𝐦 <𝟑
 </div> </details>
-<br/> <img alt="bamboo blade cookie button" src="https://files.catbox.moe/6j8x7r.gif" />
-<br/> <img width="650" alt="image" src="https://github.com/user-attachments/assets/e0b01aa0-a6ba-4b47-8348-fddd6290c64e" />
-<br/> <img width="650" alt="image" src="https://github.com/user-attachments/assets/77b67e23-96f4-457f-aae8-deec9fe0c2b9" />
+<br/> <img alt="button" src="https://files.catbox.moe/2uznug.gif" />
+<br/> <img width="650" alt="image" src="https://files.catbox.moe/7hgh2s.webp" />
 </div>
