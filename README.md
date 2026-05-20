@@ -14,6 +14,6 @@
 <br/> 𝐢𝐥𝐲 𝐠𝐮𝐲𝐬 𝐬𝐦 <𝟑
 </div> </details>
 <br/> <img alt="button" src="https://files.catbox.moe/93w7hh.gif" /> <img alt="button" src="https://files.catbox.moe/6iqr3b.gif" /> <img alt="button" src="https://files.catbox.moe/6j8x7r.gif" />
-<br/> <img width="100" alt="button" src="https://files.catbox.moe/qp1pga.gif" /> <img width="100" alt="button" src="https://files.catbox.moe/v0mejd.gif" />
+<br/> <img width="100" alt="button" src="https://files.catbox.moe/qp1pga.gif" /> <img width="120" alt="button" src="https://files.catbox.moe/v0mejd.gif" />
 <br/> <img width="650" alt="image" src="https://files.catbox.moe/7hgh2s.webp" />
 </div>
